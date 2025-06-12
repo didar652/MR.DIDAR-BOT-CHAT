@@ -1,8 +1,8 @@
-<p align="center"><a href="https://www.facebook.com/NOOBS.DEVELOPER.AYAN" target="_blank" rel="noopener noreferrer">
-  <img src="https://i.imgur.com/0e3Z3X9.jpeg" width="50" style="margin-right: 10px;"></a>
+<p align="center"><a href="https://www.facebook.com/Didar.Einstein12" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.imgur.com/3u5VOaH.jpeg" width="50" style="margin-right: 10px;"></a>
 </p>
 <h5 align="center">
-🔹MR.AYAN
+🔹MR.DIDAR
 </h5>
 
 ## Introduction
@@ -38,15 +38,15 @@
 			<a href="https://replit.com/@CliffvincentTor" style="color: green;">@Ayanchoudhuri🔥</a>
 				<br>
 	My Facebook Account ->
-	<a href="https://www.facebook.com/NOOBS.DEVELOPER.AYAN" style="color: black;">Ayan🚀</a></h3></div>
+	<a href="https://www.facebook.com/Didar.Einstein12" style="color: black;">Ayan🚀</a></h3></div>
 
-<img align="center" src="https://i.imgur.com/TsIjePZ.jpeg"/>
-
-
-🔹Mohammad Ayan
+<img align="center" src="https://i.imgur.com/3u5VOaH.jpeg"/>
 
 
-# Editing AYAN CHOWDHURY😘
+🔹MR.DIDAR
+
+
+# Editing DIDAR CHOWDHURY😘
 
 # GOATBOT real owner I don’t know
 
@@ -54,10 +54,10 @@
 
 # If there is any error, I will fix it by knocking on Facebook
 
-# https://www.facebook.com/NOOBS.DEVELOPER.AYAN
+# https://www.facebook.com/Didar.Einstein12
 
 # I hope you enjoy
 
 # THANK YOU
 
-# 🥀🥀🥀🥀🥀🥀🥀
+# 🚬🚬🚬🚬
